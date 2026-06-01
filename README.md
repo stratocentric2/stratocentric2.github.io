@@ -1,0 +1,1 @@
+# stratocentric2.github.io
